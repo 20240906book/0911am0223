@@ -9,3 +9,8 @@
 
 買下所有高鐵商務艙座位車票
 每天每班次 嘗試挑戰
+auto-text-effect
+
+https://20240906book.github.io/0911am0223/
+
+好美我喜歡
